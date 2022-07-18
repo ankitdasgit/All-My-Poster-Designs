@@ -8,3 +8,4 @@ https://user-images.githubusercontent.com/76767906/179443476-3c8e1146-8ac3-465d-
 ![diwali](https://user-images.githubusercontent.com/76767906/179443558-b5e4268d-58da-4b72-891f-0924e1a67576.png)
 ![sale](https://user-images.githubusercontent.com/76767906/179443643-9959902f-e5e2-4784-bae8-144746a76708.png)
 ![what is cookies](https://user-images.githubusercontent.com/76767906/179443671-7b99127b-e0e6-4b4c-9327-b0325d8c9538.png)
+![NEWERAPLAYSCHOOL](https://user-images.githubusercontent.com/76767906/179443912-97f51955-4da9-4537-96d8-140794896311.png)
